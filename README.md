@@ -1,1 +1,1 @@
-Some of my work in adidas
+Some of my work at adidas
